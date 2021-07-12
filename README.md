@@ -1,1 +1,1 @@
-https://mardvinalvina.github.io/rsschool-cv/cvcd .\rsschool-cv\cd .\rsschool-cv\
+https://mardvinalvina.github.io/rsschool-cv/cv
